@@ -1,6 +1,6 @@
 # aldrinlouis
 
-##My Profile
+## My Profile
 
 **Name:** Aldrin Louis F. Hipolito <br>
 **Age:**  18 years old <br>
